@@ -1,0 +1,2 @@
+# shofiudin-resolusi
+resolusi saya
